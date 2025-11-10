@@ -58,4 +58,4 @@ Software Quality Assurance professional with experience leading test teams, desi
 
 ## Contact
 - LinkedIn: https://www.linkedin.com/in/felister-paul/  
-- Email: (add preferred contact email)
+- Email: felisterpaul4@gmail.com
